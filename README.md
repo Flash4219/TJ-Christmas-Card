@@ -9,9 +9,8 @@ Christmas Card for TJer <u>(Designed &amp; Powered by Six-past-TwentyTwo)</u>
 -----
 
 <div align="left" display="inline-block">
-㊗️TJer：<br/>
 &nbsp;&nbsp;&nbsp;&nbsp;Mery Christmas<br/>
-&nbsp;&nbsp;&nbsp;&nbsp;今夜星空闪烁<br/>
+&nbsp;&nbsp;&nbsp;&nbsp;Em hy vọng đây sẽ là Giáng sinh ấm áp nhất tới giờ của chị,<br/>
 &nbsp;&nbsp;&nbsp;&nbsp;我陪你等<br/>
 &nbsp;&nbsp;&nbsp;&nbsp;初雪❄️ 圣诞树🎄 新年烟火🎆 和更好的我们<br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;—— 软件学院二十二点零六团队
