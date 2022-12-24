@@ -9,7 +9,7 @@ Christmas Card for TJer <u>(Designed &amp; Powered by Six-past-TwentyTwo)</u>
 -----
 
 <div align="left" display="inline-block">
-㊗️TJer：<br/>
+
 &nbsp;&nbsp;&nbsp;&nbsp;圣诞快乐 万事胜意 喜乐长安<br/>
 &nbsp;&nbsp;&nbsp;&nbsp;今夜星空闪烁<br/>
 &nbsp;&nbsp;&nbsp;&nbsp;我陪你等<br/>
